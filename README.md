@@ -1,0 +1,1 @@
+# kulineran-umkm-kupang-NTT-indonesia
